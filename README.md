@@ -2,7 +2,7 @@
 
 **Krishnamay** is a unique social media platform designed for individuals who wish to engage in meaningful discussions about Hinduism, Vaishnav culture, temples, and other spiritual topics. The app also includes special features like a chanting counter and Vedabase access, providing a holistic experience for spiritual seekers.
 
-- [**Download APK here!**](https://drive.google.com/file/d/1VmUP9zGxLJwMfBAsQFJDgOCiuFerfj5a/view?usp=sharing)
+- [**Download APK here!**](https://drive.google.com/file/d/1-E61M3-bC8Iys9zo-WWiERjjsXC9NnVj/view?usp=drive_link)
 
 ---
 
