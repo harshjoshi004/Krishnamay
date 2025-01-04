@@ -4,6 +4,8 @@
 
 - [**Download APK here!**](https://drive.google.com/file/d/1-E61M3-bC8Iys9zo-WWiERjjsXC9NnVj/view?usp=drive_link)
 
+- [**Watch Video Explanation Here!**](https://drive.google.com/file/d/1nD_MYagIg92nITRD9lGbw7xcMU-s8Nfv/view?usp=sharing)
+
 ---
 
 ## 📱 Introduction
